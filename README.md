@@ -1,1 +1,2 @@
-https://tenor.com/kWDj1yA8Y36.gif
+
+<div class="tenor-gif-embed" data-postid="9049140403295824596" data-share-method="host" data-aspect-ratio="1.76596" data-width="100%"><a href="https://tenor.com/view/hyacine-hyacine-hsr-hyacine-honkai-star-rail-hyacine-ultimate-hyacine-hsr-ultimate-gif-9049140403295824596">Hyacine Hyacine Hsr GIF</a>from <a href="https://tenor.com/search/hyacine-gifs">Hyacine GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
