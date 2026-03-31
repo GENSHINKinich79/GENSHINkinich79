@@ -3,7 +3,7 @@
 
 ![c29d20a2d81247268214cdc0e4a0a463](https://github.com/user-attachments/assets/4580cc35-78b2-4980-be0a-90213a79f086)
 
-she/her they/them 12teen
+she/her they/them 
 i play forsaken die of death and hsr and pjsk
 dni: no pdf werido racist and proship pls dont follow me if you bot
 
