@@ -24,6 +24,12 @@ unfunny jokes i hear
 
 fandom
 -------------
+fpe
+south paark
+Needy  steamer overload
+class oF 09
+osh no ko
+dandada
 zzz
 scott pilgrim
 honkai star rail
