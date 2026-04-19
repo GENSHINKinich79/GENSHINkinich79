@@ -17,11 +17,14 @@ DNI
 -------------
 Proship weirdo grape jokes pedo will not be welcome here 
 if you gonna be rude to me i will hide u
+scott pilgrim jokes will be hide by me 
+unfunny jokes i hear
 
 
 
 fandom
 -------------
+scott pilgrim
 honkai star rail
 grace
 die of death
