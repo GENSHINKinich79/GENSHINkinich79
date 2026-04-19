@@ -4,15 +4,21 @@
 About Me
 -------------
 i am 12 my name is blackstar you can call me candy or kel or star 
+
+
 ALONE
 ------------
 is okay you can hug and hide behind me when i was afk if you see me cosplay a john grace you can send me friend if you want to talk me i am everywhere
 please i love listen to ur yapper
 
+
+
 DNI
 -------------
 Proship weirdo grape jokes pedo will not be welcome here 
 if you gonna be rude to me i will hide u
+
+
 
 fandom
 -------------
