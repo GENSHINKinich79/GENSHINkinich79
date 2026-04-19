@@ -1,19 +1,28 @@
-<img width="343" height="343" alt="9f1044cd6f04da696d694d0b354bfafa" src="https://github.com/user-attachments/assets/adad0e80-287c-41cc-b3cb-25e6fec8605c" />
+<img width="655" height="459" alt="ecfd1c34c90e87483767f0378b8b4d24" src="https://github.com/user-attachments/assets/d8f448ae-996a-4779-a78a-a2d0ec3cfcea" />
 
 
+About Me
+-------------
+i am 12 my name is blackstar you can call me candy or kel or star 
+ALONE
+------------
+is okay you can hug and hide behind me when i was afk if you see me cosplay a john grace you can send me friend if you want to talk me i am everywhere
+please i love listen to ur yapper
 
+DNI
+-------------
+Proship weirdo grape jokes pedo will not be welcome here 
+if you gonna be rude to me i will hide u
 
-
-
-
-she/her they/them 
-i play forsaken die of death and hsr and pjsk
-dni: no pdf werido racist and proship pls dont follow me if you bot
-
-about me i am blackstar And kel
-in pony town i maybe werido and freaky you can tell me to stop i will stop
-i join pony town south park in 2023 yes i made my oc piggy zizzy iN 2023
-i join pony town in 2021  i know 
-
-i like two time and azure my husband
-
+fandom
+-------------
+honkai star rail
+grace
+die of death
+panty and stocking
+forsaken
+soul eater
+homestuck
+omori 
+Honkai impact 3rd
+genshin impact
