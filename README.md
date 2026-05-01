@@ -5,6 +5,15 @@ About Me
 -------------
 i am 12 my name is blackstar you can call me candy or kel or star 
 
+can you find me?
+------------
+
+SPOKE
+<img width="212" height="224" alt="pony-town-Spoke free c+h-boop-sit-blinking-padded-4x" src="https://github.com/user-attachments/assets/b614407b-7b2c-439f-9f30-a5bb187ffdba" />
+
+CHICKEN
+<img width="172" height="220" alt="pony-town-Me, gooner-boop-sit-blinking-padded-4x" src="https://github.com/user-attachments/assets/5db08bf1-e1e7-415c-8324-dd1dd48f6872" />
+
 
 ALONE
 ------------
