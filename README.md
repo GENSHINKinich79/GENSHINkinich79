@@ -1,4 +1,4 @@
-<img width="374" height="211" alt="silver-wolf-lvl-999" src="https://github.com/user-attachments/assets/c1250372-8b1f-4b0d-a8b3-33d0d8e1e542" />
+<img width="736" height="414" alt="41e1ad60d89cde72870a907b7e981b54" src="https://github.com/user-attachments/assets/e450a672-76e9-4982-89b6-dd52430ddf30" />
 
 
 
