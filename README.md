@@ -1,4 +1,7 @@
-<img width="400" height="400" alt="Martialwalk" src="https://github.com/user-attachments/assets/5278053a-3bb4-4fbd-bc3d-ffc435e85fe8" />
+<img width="374" height="211" alt="silver-wolf-lvl-999" src="https://github.com/user-attachments/assets/c1250372-8b1f-4b0d-a8b3-33d0d8e1e542" />
+
+
+
 
 
 About Me
