@@ -1,8 +1,9 @@
 <img width="540" height="108" alt="tumblr_0d360333551646e392a3096a3dc01b69_2e29288f_540" src="https://github.com/user-attachments/assets/c5a0a634-e1bd-417b-ba86-1e5fe1b6513e" />
 
-<img width="600" height="83" alt="tumblr_de89245c77febe37d222cc348821eb42_ebd3a425_540" src="https://github.com/user-attachments/assets/c03b065c-91a2-4bfb-9753-266afb29319d" />
+
 
 <img width="735" height="536" alt="6c6a1129ab59f3445b3ddcb13cba75f0" src="https://github.com/user-attachments/assets/be374711-4562-48c5-b13d-216f32457a6a" />
+<img width="640" height="15" alt="tumblr_aa11753d83a13aa3d08295601cc6d75f_d14e4d48_540" src="https://github.com/user-attachments/assets/fcbf9889-96d6-4c7a-ad54-834a9b89da36" />
 
 About Me
 -------------
