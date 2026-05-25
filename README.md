@@ -4,6 +4,9 @@
 <img width="498" height="282" alt="dd1023feeea3307fb22ef18d75a8dee7" src="https://github.com/user-attachments/assets/3b2c6606-706b-4f1d-979d-f032cce92c1b" />
 
 <img width="540" height="81" alt="tumblr_7d0fe805a545d265c3fdda9ac45d0d13_030d0a62_540" src="https://github.com/user-attachments/assets/67138921-6195-40f9-a464-b757ecce899b" />
+
+
+
 About Me
 -------------
 i am 12 my name is blackstar you can call me candy or kel or star 
