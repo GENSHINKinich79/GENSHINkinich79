@@ -1,10 +1,9 @@
-<img width="540" height="108" alt="tumblr_0d360333551646e392a3096a3dc01b69_2e29288f_540" src="https://github.com/user-attachments/assets/c5a0a634-e1bd-417b-ba86-1e5fe1b6513e" />
+<img width="540" height="191" alt="tumblr_eab2852708bf35ae0b94ef37ab228978_ac276d77_540" src="https://github.com/user-attachments/assets/318826dd-faf0-4c23-a5f6-17389fd357bc" />
 
 
+<img width="498" height="282" alt="dd1023feeea3307fb22ef18d75a8dee7" src="https://github.com/user-attachments/assets/3b2c6606-706b-4f1d-979d-f032cce92c1b" />
 
-<img width="735" height="536" alt="6c6a1129ab59f3445b3ddcb13cba75f0" src="https://github.com/user-attachments/assets/be374711-4562-48c5-b13d-216f32457a6a" />
-<img width="640" height="15" alt="tumblr_aa11753d83a13aa3d08295601cc6d75f_d14e4d48_540" src="https://github.com/user-attachments/assets/fcbf9889-96d6-4c7a-ad54-834a9b89da36" />
-
+<img width="540" height="81" alt="tumblr_7d0fe805a545d265c3fdda9ac45d0d13_030d0a62_540" src="https://github.com/user-attachments/assets/67138921-6195-40f9-a464-b757ecce899b" />
 About Me
 -------------
 i am 12 my name is blackstar you can call me candy or kel or star 
@@ -53,4 +52,4 @@ homestuck
 omori 
 Honkai impact 3rd
 genshin impact
-<img width="540" height="108" alt="tumblr_46f509407bc8acf41eaa2b59962fe378_15253530_540" src="https://github.com/user-attachments/assets/718aaaf5-7cac-4434-b3d9-b3cb47aac97d" />
+<img width="540" height="191" alt="tumblr_eab2852708bf35ae0b94ef37ab228978_ac276d77_540" src="https://github.com/user-attachments/assets/8752dfb3-7b1c-42e9-948d-75814dc427fe" />
