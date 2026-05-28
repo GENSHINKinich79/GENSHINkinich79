@@ -1,10 +1,4 @@
-<img width="540" height="191" alt="tumblr_eab2852708bf35ae0b94ef37ab228978_ac276d77_540" src="https://github.com/user-attachments/assets/318826dd-faf0-4c23-a5f6-17389fd357bc" />
-
-
-<img width="498" height="282" alt="dd1023feeea3307fb22ef18d75a8dee7" src="https://github.com/user-attachments/assets/3b2c6606-706b-4f1d-979d-f032cce92c1b" />
-
-<img width="540" height="81" alt="tumblr_7d0fe805a545d265c3fdda9ac45d0d13_030d0a62_540" src="https://github.com/user-attachments/assets/67138921-6195-40f9-a464-b757ecce899b" />
-
+<img width="735" height="448" alt="95e01ec5ff2b7eb63bcfac980c376fcb" src="https://github.com/user-attachments/assets/e5a5aa87-0ed3-41c9-b1dd-c5f3b1ad70ed" />
 
 
 About Me
@@ -55,4 +49,4 @@ homestuck
 omori 
 Honkai impact 3rd
 genshin impact
-<img width="540" height="191" alt="tumblr_eab2852708bf35ae0b94ef37ab228978_ac276d77_540" src="https://github.com/user-attachments/assets/8752dfb3-7b1c-42e9-948d-75814dc427fe" />
+<img width="736" height="557" alt="fcf52506fe0b824254255f1113c2e492" src="https://github.com/user-attachments/assets/8d89d954-d488-485d-95a2-f45b9d15ae37" />
