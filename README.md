@@ -3,16 +3,13 @@
  
 About Me
 -------------
-i am 13 my name is blackstar known as buss
+i am 13 my name is blackstar known as buss. I ragebait those bags
+and I am black Mexican person  and I am straight and I love my bf 
 
 
 
 
 
-ALONE
-------------
-is okay you can hug and hide behind me when i was afk if you see me cosplay taunt you can send me friend if you want to talk me i am everywhere
-please i love listen to ur yapper
 
 
 
@@ -21,8 +18,8 @@ DNI
 Proship weirdo grape jokes  will not be welcome here 
 if you gonna be rude to me i will hide u
 scott pilgrim jokes will be hide by me 
-unfunny jokes i hear 
-
+unfunny jokes i hear  dni two time doubles I am non-sharing
+**I am two time yumeship**
 
 
 fandom
