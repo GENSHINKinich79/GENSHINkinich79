@@ -1,23 +1,12 @@
-<img width="735" height="448" alt="95e01ec5ff2b7eb63bcfac980c376fcb" src="https://github.com/user-attachments/assets/e5a5aa87-0ed3-41c9-b1dd-c5f3b1ad70ed" />
 
-BAD NEWS
--------------
-yes i got  permanently suspended  for in safe server mistake for dumb werid name what i done
-yes i will make new pony skin in july soon
-i made this acc in 2021 its gone now
-i will quit pony town and take break of this game this game hate me so much i lost my all skins and my friends if you see me in july pony town skin name blackstar come support me pleaaassssseeeee i need my acc back i try put my email i need ask the creator try get my acc backc YOU CAN ADD MY DISCORD USER IS sandrone_genshinimpact to DMS ME FOR WHAT I DID IF YOU HAVE A DISCOD DMS PLS
 
  
 About Me
 -------------
-i am 12 my name is blackstar you can call me candy or kel or star 
-
-can you find me?
+i am 13 my name is blackstar known as buss
 
 
 
-------------
-yes i am the one in barkey or you can find me somewhere when i am cosplay taunt from die of death or any character
 
 
 ALONE
@@ -29,10 +18,10 @@ please i love listen to ur yapper
 
 DNI
 -------------
-Proship weirdo grape jokes pedo will not be welcome here 
+Proship weirdo grape jokes  will not be welcome here 
 if you gonna be rude to me i will hide u
 scott pilgrim jokes will be hide by me 
-unfunny jokes i hear
+unfunny jokes i hear 
 
 
 
