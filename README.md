@@ -15,10 +15,7 @@ and I am black Mexican person  and I am straight and I love my bf
 
 DNI
 -------------
-Proship weirdo grape jokes  will not be welcome here 
-if you gonna be rude to me i will hide u
-scott pilgrim jokes will be hide by me 
-unfunny jokes i hear  dni two time doubles I am non-sharing
+Proship weirdo grape jokes  dni two time doubles I am non-sharing
 **I am two time yumeship**
 
 
