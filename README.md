@@ -3,7 +3,7 @@
  
 About Me
 -------------
-i am 13 my name is blackstar known as buss. I ragebait those bags
+i am 13 my name is blackstar known as buss. I ragebait people in pony town 
 and I am black Mexican person  and I am straight and I love my bf 
 
 
